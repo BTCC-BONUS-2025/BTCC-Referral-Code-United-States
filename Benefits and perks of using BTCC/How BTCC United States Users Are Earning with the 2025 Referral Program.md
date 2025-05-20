@@ -4,7 +4,7 @@
 <p>In this guide, we’ll break down <strong>how to use a BTCC referral code</strong>, why it's worth signing up in 2025, and how U.S. traders are unlocking <strong>BTCC trading rewards</strong> through bonus codes, promotions, and more.</p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">" 
+<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">🎁 
 <h2>✅ What Is the 2025 BTCC Referral Program?</h2>
 <p>BTCC has revamped its <strong>referral bonus program</strong> in 2025, making it more lucrative and accessible for <strong>new users</strong>. When you refer someone to BTCC using your unique <strong>referral link</strong>, <strong>invite code</strong>, or <strong>promo code</strong>, you earn rewards when they register, deposit, and trade.</p>
 <p>With the new <strong>BTCCBONUS code</strong>, users can now unlock:</p>
