@@ -4,7 +4,7 @@
 <p>In this detailed step-by-step article, we’ll explain how to <strong>sign up</strong> as a new user, use your <strong>BTCC referral bonus</strong>, and maximize your <strong>BTCC trading rewards</strong> with the popular <strong>BTCCBONUS</strong> code. Whether you are a beginner or an experienced trader, this updated 2025 guide will help you get the most out of BTCC’s referral program in the US.</p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">" 
+<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;"> ⭐
 <h2>What is the BTCC Referral Program?</h2>
 <p>BTCC’s referral program allows existing users to invite friends and colleagues to join the platform. When the new user signs up with a <strong>BTCC referral code</strong> or <strong>BTCC promo code</strong>, both the referrer and the new user earn rewards. This program is especially attractive due to:</p>
 <ul>
