@@ -4,7 +4,7 @@
 <p>In this guide, you’ll discover everything about the <strong>BTCC referral bonus</strong>, including how to use your <strong>BTCC promo code</strong>, the advantages of the <strong>BTCC discount code</strong>, and tips to boost your <strong>BTCC trading rewards</strong>. Let’s dive in!</p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">"
+<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">🎁
 <h2>What Is the BTCC Referral Code and How Does It Work?</h2>
 <p>A <strong>BTCC referral code</strong> (also called a referral link, invitation code, or promo code) is a unique code given to BTCC users that lets them invite friends to sign up. When your friends use your code during registration, both you and they get rewarded with bonuses and trading fee discounts.</p>
 <p>BTCC’s referral program rewards users generously, especially in the U.S., where crypto trading is rapidly growing. Here’s what you get with the <strong>BTCC referral bonus</strong> program in 2025:</p>
