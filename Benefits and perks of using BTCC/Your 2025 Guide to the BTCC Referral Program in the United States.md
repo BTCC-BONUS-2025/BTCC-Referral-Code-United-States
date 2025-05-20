@@ -6,9 +6,9 @@
   simply by inviting friends to BTCC. In this updated 2025 guide, we’ll walk you through everything you need to know about the BTCC referral program, also known as the BTCC bonus code, invite code, or promo code, and how you can maximize your earnings with a simple code:
   <strong>BTCCBONUS</strong>.
 </p>
-<p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
+<p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up and receive offers here</a></p>
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">"
+<img src="https://images.mirror-media.xyz/publication-images/ueC9oOHfKwXrYumG_JCkP.jpeg?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">
 <h2>What Is the BTCC Referral Code Program?</h2>
 
 <p>
