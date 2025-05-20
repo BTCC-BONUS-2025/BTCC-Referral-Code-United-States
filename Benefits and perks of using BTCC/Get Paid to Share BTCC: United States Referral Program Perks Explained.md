@@ -4,7 +4,7 @@
 <p>In this article, we’ll break down how the BTCC referral program works, how to use your <strong>BTCC referral code</strong>, and the amazing bonuses you can unlock. Ready to boost your crypto trading journey? Let’s dive in.</p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">" 
+<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">🎁
 <h2>What is the BTCC Referral Program?</h2>
 <p>The BTCC referral program is a rewarding system that lets existing users earn bonuses and rewards by inviting friends, family, or followers to sign up on BTCC using their unique <strong>referral code</strong> or <strong>promo code</strong>.</p>
 <h3>How It Works:</h3>
