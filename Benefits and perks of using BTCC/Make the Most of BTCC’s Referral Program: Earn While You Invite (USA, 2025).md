@@ -67,6 +67,7 @@
 <h2>Tracking Your Earnings and Referral Performance</h2>
 <p>Once you start inviting others with your <strong>BTCC referral code</strong>, you can easily monitor your referrals and bonuses in your BTCC account dashboard. Payouts and bonuses are credited regularly, so you stay motivated to continue expanding your network and earning more.</p>
 <h2>Important Terms and Conditions (USA)</h2>
+
 <ul>
 <li>The BTCC referral program is open to users in the USA who comply with local regulations.</li>
 <li>Referral bonuses are subject to minimum trading volumes and other criteria.</li>
