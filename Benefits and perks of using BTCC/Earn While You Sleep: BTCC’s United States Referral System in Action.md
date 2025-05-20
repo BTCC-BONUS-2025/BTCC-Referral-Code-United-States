@@ -7,7 +7,7 @@ This guide will walk you through how to use a <strong>BTCC referral code</strong
 </p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up to receive special offers here</a></p
 
-<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">" 
+<img src="https://images.mirror-media.xyz/publication-images/Poz8BlB9BgSoA-3eFI7xG.png?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">⭐ 
 <h2>What Is BTCC?</h2>
 <p>
 BTCC is one of the longest-standing cryptocurrency exchanges in the world, offering secure and reliable trading services for over a decade. It is now actively expanding its presence in the United States with a suite of competitive benefits designed to attract and reward new users.
